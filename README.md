@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Web Development😄😄.
 - 💞️ I’m currently learning HTML, CSS, JAVA, PYTHON etc.
 - 📫 How to reach me using my Email: sheneh2010@.gmail.com. 
-- 😄 Pronouns:....
-- ⚡ Fun fact: Learning is fun and i love to learn.
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Learning is fun and i love to learn and i love to learn more about u too 😉😉.
